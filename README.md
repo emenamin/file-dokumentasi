@@ -10,5 +10,5 @@ Istilah warna baju:
 - Navy blue
 - Dark green
 
-##Random prompt
+#Random prompt
 create kid friendly logo of rabbit, clean design, geometric shapes, negative space, aesthetic, minimalist, colorful with white background

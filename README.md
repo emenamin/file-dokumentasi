@@ -1,4 +1,4 @@
-# file-dokumentasi
+# dokumentasi-midjourney
 This repository contains files related to MidJourney documentation.
 
 # Generate Image Single Person/Product

@@ -24,6 +24,8 @@ full body of one muslim man standing in the islamic room, 20s, race asian, weari
 ### Anak kecil muslim fashion:
 full body of a woman kid standing in a bed room, age 6s, race asian, wearing islamic embroidery motifs dress and hijab, the face cheerfully smiling looking at camera, the room is clean with white floor and white window frame in a ninth floor, photography hyperrealistic,he pose like a model at the center of the camera
 
+full body of a muslim girl kid pose as if about to walk wear hijab, age 6s, race asian, wearing navy western dress with big collar and long sleeve, the dress has flower pattern, the face cheerfully smiling looking at camera, she wears a shoes, the background is like in front of eropean house with cream wall but dont expose details too much, photography hyperrealistic as if taken inside a studio, she pose like a model at the center of the camera
+
 ### Sajadah
 a photo of islamic prayer rug. capture from above. set up like a selling product. quality high resolution realism style
 

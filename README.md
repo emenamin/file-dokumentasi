@@ -37,6 +37,12 @@ Related to fashion/product
 - hanger shot/ghost mannequin : the clothing item is suspended or hung but still not on a human form
 - Slim-Fit Trousers: These are not as tight as skinny trousers.
 - Skinny Trousers: These are tighter than slim-fit trousers and hug the body closely.
+- Sleeve
+
+Nama Baju Perempuan:
+- Jumpsuit
+- Dress
+- 
 
 Kata kunci untuk resolusi/kualitas imag:
 - 32K high quality

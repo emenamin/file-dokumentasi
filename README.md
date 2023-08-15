@@ -15,3 +15,17 @@ Understand that Midjourney is AI which can learn along the way. It studies your 
 
 ## Random prompt
 create kid friendly logo of rabbit, clean design, geometric shapes, negative space, aesthetic, minimalist, colorful with white background
+
+## Prompt Image untuk Theme Fashion 
+
+### Pria Muslim Fashion:
+full body of one muslim man standing in the islamic room, 20s, race asian, wearing islamic embroidery motifs shirt and indonesian sarung, the face smiling looking at camera, the room is clean with white floor and white window frame in a ninth floor, photography hyperrealistic,he pose like a model at the center of the camera 
+
+### Anak kecil muslim fashion:
+full body of a woman kid standing in a bed room, age 6s, race asian, wearing islamic embroidery motifs dress and hijab, the face cheerfully smiling looking at camera, the room is clean with white floor and white window frame in a ninth floor, photography hyperrealistic,he pose like a model at the center of the camera
+
+### Sajadah
+a photo of islamic prayer rug. capture from above. set up like a selling product. quality high resolution realism style
+
+### White Product
+Photo product of unique wooden chair, craved, vintage, front facing, white background

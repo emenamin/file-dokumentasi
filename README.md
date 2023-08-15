@@ -29,3 +29,12 @@ a photo of islamic prayer rug. capture from above. set up like a selling product
 
 ### White Product
 Photo product of unique wooden chair, craved, vintage, front facing, white background
+
+## Terminologi Penting
+Related to fashion/product
+
+- Flat lay/ Flatlay : When a product picture displays an item of clothing without it being worn by a human body
+- hanger shot/ghost mannequin : the clothing item is suspended or hung but still not on a human form
+- Slim-Fit Trousers: These are not as tight as skinny trousers.
+- Skinny Trousers: These are tighter than slim-fit trousers and hug the body closely.
+- 

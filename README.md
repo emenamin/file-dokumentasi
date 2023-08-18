@@ -26,6 +26,8 @@ full body of a woman kid standing in a bed room, age 6s, race asian, wearing isl
 
 full body of a muslim girl kid pose as if about to walk wear hijab, age 6s, race asian, wearing navy western dress with big collar and long sleeve, the dress has flower pattern, the face cheerfully smiling looking at camera, she wears a shoes, the background is like in front of eropean house with cream wall but dont expose details too much, photography hyperrealistic as if taken inside a studio, she pose like a model at the center of the camera
 
+Full body of a very young female walk downstairs in guest room, age 6s, race asian, wearing flower motifs pink dress with long - sleeve, loose pants, high heels. the face is neutral expression looking at camera, the room is clean with white floor and white window frame photography hyperrealistic, she pose like a model at the center of the camera
+
 ### Sajadah
 a photo of islamic prayer rug. capture from above. set up like a selling product. quality high resolution realism style
 

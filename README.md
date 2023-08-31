@@ -52,3 +52,7 @@ Kata kunci untuk resolusi/kualitas imag:
 - 32K high quality
 - Ultra realistic
 - hyper details
+
+Photography Technique
+- Flat lay
+- Floating product

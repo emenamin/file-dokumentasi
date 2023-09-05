@@ -35,7 +35,8 @@ a photo of islamic prayer rug. capture from above. set up like a selling product
 Photo product of unique wooden chair, craved, vintage, front facing, white background
 
 ## Terminologi Penting
-Related to fashion/product
+
+### Related to fashion/product
 
 - Flat lay/ Flatlay : When a product picture displays an item of clothing without it being worn by a human body
 - hanger shot/ghost mannequin : the clothing item is suspended or hung but still not on a human form
@@ -56,3 +57,12 @@ Kata kunci untuk resolusi/kualitas imag:
 Photography Technique
 - Flat lay
 - Floating product
+
+### Related to Grill & Food
+
+- Mashed or baked potatoes
+- Buns for burger
+- Barbecue
+- Veggies
+- Condiments (Ketchup, mustard, mayo)
+- 
